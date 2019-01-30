@@ -1,2 +1,0 @@
-Megacool project
-ergrtghr
